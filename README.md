@@ -1,1 +1,1 @@
-VijetaSurakanti.github.io
+VjethaSurakanti.github.io
